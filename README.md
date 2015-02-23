@@ -1,4 +1,4 @@
-![JustClickPresent](http://i.imgur.com/6ityi09.png)
+![JustClickPresent](http://i.imgur.com/Ebw9DCs.png)
 
 ## Summary 
 
